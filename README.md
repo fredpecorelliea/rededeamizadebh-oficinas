@@ -1,0 +1,2 @@
+# rededeamizadebh-oficinas
+Que tal enraizar no mundo uma ideia de um grupo , de um coletivo, de uma comunidade ou uma ideia sua... que tal sentir que contribui para apaz e o bem... Se concorda na afirmativa: uma geração aprende com a outra e reciprocamente há ensino e aprendizagem... Seja um autor de livro... pode ser também um livreto uma cartilha escolha um gênero textual e arrisque... saiba como: pare somente um pouco e interaja
